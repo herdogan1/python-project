@@ -1,0 +1,1 @@
+değişikli yapıldı
